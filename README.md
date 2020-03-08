@@ -1,4 +1,4 @@
-#Compiti corona
+# Compiti corona
 
 ### COMPITO DI ITALIANO: 
 * Studiare gli appunti di Svevo in didattica che ho iniziato a spiegare. 
