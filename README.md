@@ -14,6 +14,8 @@
 ### COMPITO DI MATEMATICA: 
 * Vi ho allegato un link a classe 5CI in cui trovate dei video su esercizi svolti fatti da me ( portate pazienza per la qualità scarsa). Per martedì voglio via mail i seguenti es pag 169 n. 309, 310 312 e pag. 170 n 342
 enrica.lodi1970@gmail.com
+* Esercizi su Edmodo dal 16 al 27
+* Esercizi su Edmodo dal 31 al 39
 
 ### COMPITI DI INGLESE: 
 Si comunica che nella sezione "Materiale per la didattica" è stata creata una cartella con i materiali di studio ed esercitazione della settimana. Il tutto è stato suddiviso in tre lezioni (quelle che normalmente si fanno a scuola). Al rientro a scuola questo materiale sarà oggetto di interrogazioni e verifica.
